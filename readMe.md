@@ -1,4 +1,4 @@
-It's time to get involved to cyber defense of our country (Ukraine). We also ask all pepole in the world to join us.
+It's time to get involved to cyber defense of our country (Ukraine). We also ask all people in the world to join us.
 If Russian troops cross into Ukraine, all EU nations are in dangerous.
 Please help Ukrainian people.
 
